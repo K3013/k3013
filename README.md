@@ -7,3 +7,4 @@
 - 📫 How to reach me: Patreon
 - 😄 Pronouns: He/Him/It
 
+  See more links about me on : https://linktr.ee/k3013mc
