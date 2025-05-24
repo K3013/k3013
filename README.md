@@ -8,3 +8,11 @@
 - 😄 Pronouns: He/Him/It
 
   See more links about me on : https://linktr.ee/k3013mc
+### My known languages (programation) :
+- 🥇Python
+- 🥈json
+- 🥉powershell
+### My languages (speaking) :
+- French (my birth language)
+- English
+- Spanish
